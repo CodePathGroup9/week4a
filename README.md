@@ -2,7 +2,7 @@
 
 <img src="http://g.recordit.co/S95PnvzKxG.gif" width=200><br>
 
-
+<img src="http://g.recordit.co/nY6UtpJIAb.gif" width=200><br>
 
 # Week3
 
